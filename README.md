@@ -21,3 +21,4 @@ I'm open to collaboration on projects that bridge AI and neuroscience, as well a
 ## 📫 **Contact Me**
 - **Email**: yeganeh.mirakhorloo@gmail.com
 - **LinkedIn**: https://www.linkedin.com/in/yeganeh-mirakhorloo/
+- 
