@@ -1,4 +1,4 @@
-# 💻 **[Yegane Mirakhorloo]**  
+# 💻 **[Yeganeh Mirakhorloo]**  
 **Welcome to my GitHub!**
 
 ## 👩‍💻 **About Me**
